@@ -1,6 +1,10 @@
-I dont know english
+# I cant speak english!!!!!!! #
 
-똥겜만드는사람
-지금만들고잇는거: 언타이틀드 마이닝 게임 (언마겜)
+![](https://static.wikia.nocookie.net/606pm/images/1/1d/LockyCharms.png/revision/latest?cb=20231210021856)
+헉럭키참스ㄷㄷㄷㄷㄷㄷ
+
+- 똥겜만드는사람이애오;;;
+- 지금만들고잇는거: Untitled Mining Game (언마겜)
+- 6:06 PM은희대의망작이애오!!!
 
 pfp by 東間メリ
