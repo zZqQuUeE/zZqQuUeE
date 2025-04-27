@@ -1,10 +1,8 @@
-# I cant speak english!!!!!!! #
+# I cant speak english!!!!!!!
 
-![](https://static.wikia.nocookie.net/606pm/images/1/1d/LockyCharms.png/revision/latest?cb=20231210021856)
+![이거랩3이존내빡샘](https://static.wikia.nocookie.net/606pm/images/1/1d/LockyCharms.png/revision/latest?cb=20231210021856)
 헉럭키참스ㄷㄷㄷㄷ(상당히어려움)
-
-- 똥겜만드는 응에개발자애오;;; (API가뭔지모르무ㅜㅜ)
-- 지금만들고잇는거: Untitled Mining Game (언마겜)
-- 6:06 PM은레전드망작이애오!!!!!!
-
+<br><br>
+똥겜만드는사람이애오!!!<br>지금만들고잇는거: Untitled Mining Game (을위한 Synced Event Editor)<br>코딩5년했는데 하필 4.8년을 오블록스스튜디오 쳐해서 아는게없음 깃허브도 5년만에만든ㅜ
+<br><br><br>
 pfp by 東間メリ
